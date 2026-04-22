@@ -8,6 +8,8 @@
 - [Today's Car Won't Last! How Cheap Parts are Killing Cars!](https://youtu.be/uoKRmnAgnAw)
 - [Ford Dealer Missed CRITICAL Issue on this '21 Bronco Sport](https://youtu.be/CvwP3vFAaw8)
 - [Shop TOTALLY Messed Up this Ford Flex!](https://youtu.be/WxT4bZW44l4)
+- [Today's Car Won't Last! How Cheap Parts are Killing Cars!](https://youtu.be/uoKRmnAgnAw)
+- [Never buy a TOYOTA with these issues according to the 20+ years of CAR WIZARD mechanic experience!](https://youtu.be/W2ttg6a-5iI)
 
 # graph.
 ## Smart Car
