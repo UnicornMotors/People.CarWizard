@@ -1,2 +1,3 @@
 - [This 97 F250 Will Make You Cry (But In A Good Way!)](https://youtu.be/I8Dnc8BkJtQ)
 - [My TOP pick: The BEST small truck on the road today!](https://youtu.be/ZxgSdEOGXSU)
+- [4 things you MUST check before you buy any used car! CAR WIZARD shows how not to be scammed!](https://youtu.be/XlTA5Laa48o)
